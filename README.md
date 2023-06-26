@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>Behold, I am the sarcastic virtuoso of cybersecurity and programming.<br>With my awe-inspiring keyboard skills and the power of dry humor, I strive to protect the digital realms.<br>Brace yourself for my convoluted code and witty remarks, for I am here to make your journey through this tech maze delightfully sarcastic.<br>Join me, if you dare, on this whimsical adventure of bits, bugs, and a sprinkle of sarcasm.
+<br>Greetings! I'm Shafqat, the self-proclaimed cyber vigilante you never knew you needed. With a twisted sense of humor and a knack for cybersecurity, machine learning, and AI, I'm here to turn digital chaos into order. Armed with a keyboard and a cup of coffee that's always half-full (of sarcasm), I dive into the depths of code, warding off cyber threats with equal parts wit and expertise. So, fasten your seatbelts, fellow netizens, because together we'll tame the wild world of tech with a sarcastic grin and an unstoppable determination. Ready? Let's conquer the digital frontier!
 
 
 ## 🌐 Socials:
